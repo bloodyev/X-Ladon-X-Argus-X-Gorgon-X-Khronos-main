@@ -78,4 +78,4 @@ douyin and tiktok X-Argus X-Ladon X-Gorgon X-Khronos algorithm, device register 
 
 
 
-# [Contact Telegram](https://t.me/tiktokpeppa)
+# [Contact Telegram](https://t.me/bloodyev)
